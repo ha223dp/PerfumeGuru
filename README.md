@@ -14,28 +14,6 @@ Affordable Prices: Competitive pricing to make luxury fragrances accessible to a
 
 Latest Trends: Always updated with the newest releases and popular scents.
 
-Exceptional Customer Service: Our team is always available to assist you with your queries and recommendations.
-
-Secure Shopping: A seamless and secure shopping experience with fast shipping and easy returns.
-
-How to Shop
-
-Browse our collection and discover the perfect fragrance for you.
-
-Add your favorite perfumes to the cart.
-
-Proceed to checkout with our secure payment options.
-
-Enjoy fast and reliable delivery to your doorstep.
-
-Contact Us
-
-Have questions or need assistance? Our team is here to help! Reach out to us via:
-
-Email: support@perfumeguru.com
-
-Social Media: Follow us on Instagram, Facebook, and Twitter for updates and special offers.
-
-Thank you for choosing PerfumeGuru—where elegance meets fragrance!
+E
 
 
