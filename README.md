@@ -14,6 +14,4 @@ Affordable Prices: Competitive pricing to make luxury fragrances accessible to a
 
 Latest Trends: Always updated with the newest releases and popular scents.
 
-E
-
 
